@@ -20,6 +20,7 @@ latest: [Challenges Onboarding Retail to Web3 through NFTs](https://github.com/k
 *(is it from 0 for real 😶 idk-adding on jul 13 2026)*
 
 haha proud to flex, hearing in the end we're proud of the experience we own. japanese mini market. spa. influencer commerce. infrastructure. wallet. nft marketplace. etc. now NFT DAO (ofc with trustworthy friends)
+
 *🤔hmm update on jul 13 2026, 🫯 i left*
 
 ## ♬ reach out?
